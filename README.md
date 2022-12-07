@@ -1,6 +1,6 @@
 # Félix Rodier--Bellec
 
-France | [mail](felixrodbel@gmail.com) | +33 7 61 42 94 98 | [Linkedin](https://www.linkedin.com/in/felix-rodier-bellec/)
+France | <felixrodbel@gmail.com> | +33 7 61 42 94 98 | [Linkedin](https://www.linkedin.com/in/felix-rodier-bellec/)
 
 ## Summary
 
