@@ -8,8 +8,7 @@ Recent college graduate with experience in technical writing. Possess excellent 
 
 ## Technical Writing Experience
 
-### UBO Open factory (fab lab in Brest University)
-*Brest, France*
+### UBO Open factory (fab lab in Brest University) *Brest, France*
 
 **Technical writing intern** (April 2022 - July 2022)
 
